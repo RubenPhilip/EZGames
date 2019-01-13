@@ -1,3 +1,1 @@
-# RubenPhilipPage
-Creating a page 
-Hi
+# EZ GAMES
